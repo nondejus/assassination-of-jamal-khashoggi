@@ -1,1 +1,0 @@
-# assassination-of-jamal-khashoggi
